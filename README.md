@@ -1,1 +1,3 @@
 # Job-Respo
+- 👋 Hi, I’m @CGordon93 
+- 📫 How to reach me cgordon1993@hotmail.com...
